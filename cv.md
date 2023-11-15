@@ -8,6 +8,7 @@
 
 [telegramm](https://tlgg.ru/Psihomatika)
 [linkedin](https://www.linkedin.com/feed/)
+[discord](https://discordapp.com/users/766514119980613643/)
 
 ## о себе
 
